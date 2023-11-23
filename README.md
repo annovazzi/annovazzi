@@ -16,7 +16,4 @@ Feel free to reach out to me for professional inquiries or just to say hello!
 
 📧 Email: [devanir@devatecnologia.com](mailto:devanir@devatecnologia.com)
 
-### 🌐 Connect with Me
-- [LinkedIn](https://www.linkedin.com/in/devanir-annovazzi-junior)
-  
 ### 🚀 Let's collaborate and innovate together!

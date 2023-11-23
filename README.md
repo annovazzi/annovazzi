@@ -14,6 +14,6 @@
 ### 📬 Contact Information
 Feel free to reach out to me for professional inquiries or just to say hello!
 
-📧 Email: [devanir@devatecnologia.com](mailto:devanir@devatecnologia.com)
+📧 Email: [devanir@devatecnologia.com](mailto:devanir@devatecnologia.com.br)
 
 ### 🚀 Let's collaborate and innovate together!
